@@ -1,0 +1,48 @@
+# Five Bodyweight Exercises
+
+## 1. Archer Push-Up
+- Start in a push-up position with your hands about twice shoulder-width apart.
+- Keep your body straight from head to heels.
+- Shift your weight to one side as you lower down.
+- Bend the working arm deeply.
+- Keep the opposite arm relatively straight.
+- Lower under control.
+- Push back up to the starting position.
+- Repeat on the other side.
+
+## 2. Elevated Pike Push-Up
+- Place your feet on a chair or bench.
+- Put your hands on the floor slightly wider than shoulder width.
+- Walk your hands inward until your body forms an inverted V.
+- Keep your hips high.
+- Lower your head toward the floor between your hands.
+- Bend your elbows under control.
+- Press back up through your shoulders until your arms are straight.
+
+## 3. Pistol Squat Progression
+- Stand on one leg.
+- Extend the other leg straight in front of you.
+- Keep your chest upright.
+- Push your hips back.
+- Slowly bend the standing leg and lower yourself.
+- Keep the extended leg off the floor.
+- Go only as low as you can with control.
+- Press through the heel of the standing leg to return to standing.
+
+## 4. Pull-Up with Slow Negative
+- Grab a pull-up bar with your hands slightly wider than shoulder width.
+- Jump or step up until your chin is over the bar.
+- Hold the top briefly.
+- Lower yourself as slowly as possible.
+- Keep full control during the descent.
+- Finish with arms fully extended.
+- Reset and repeat.
+
+## 5. Handstand Hold Progression
+- Start in a push-up position with your feet against a wall.
+- Walk your feet up the wall.
+- Walk your hands back toward the wall at the same time.
+- Move into a more vertical position gradually.
+- Keep your arms straight and body tight.
+- Hold the position briefly.
+- Walk back down with control.
